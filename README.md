@@ -19,7 +19,7 @@ Uma liga acadêmica é uma associação sem fins lucrativos, que busca complemen
    - Seleção dos eventos e suas datas
    - Análise e planejamento por evento
    - Distribuição de responsabilidades e tarefas
-   - *Primeiro Meet Up em Março: Seleção do tema e do convidado para falar*
+   - *Primeiro Meet Up em Março-ITAÚNA: Seleção do tema e do convidado para falar*
 
 **Março**
    - *Primeiro Meet Up em Março-ITAÚNA:* 
